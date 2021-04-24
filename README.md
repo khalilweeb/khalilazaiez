@@ -3,4 +3,4 @@
 #And also i hope u like my content i'll be happy if u want to help or giving ur opinion 
 
 
-#THANKS FOP READING THIS 
+#THANKS FOR READING THIS 
